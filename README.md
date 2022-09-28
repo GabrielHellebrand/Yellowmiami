@@ -19,6 +19,7 @@ through Netflix for an hour or so trying to find something to watch so as a way 
 movies I like or want to watch and use a random number generator to decide what I should watch next.
 
 What do you value?
+
 Competence - I love it when people including myself are competent for the task at hand. For instance, you don’t want a group of people where one person knows what 
 they’re doing and everyone else is lost and confused.
 
