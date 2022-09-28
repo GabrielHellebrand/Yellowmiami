@@ -21,7 +21,9 @@ movies I like or want to watch and use a random number generator to decide what 
 What do you value?
 Competence - I love it when people including myself are competent for the task at hand. For instance, you don’t want a group of people where one person knows what 
 they’re doing and everyone else is lost and confused.
+
 Efficiency- Hard work is great but it doesn’t mean a lot if you aren’t efficient with your time and resources.
+
 Honesty- I like it when people are honest with each other it makes working with people as well as life in general a lot easier.
 
 When is the best time to approach you?
